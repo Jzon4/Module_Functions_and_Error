@@ -2,6 +2,7 @@
 
 # VIDEO LINK
 
+https://www.loom.com/share/b0adc4d758704e9ba942edd7c583af85?sid=c49df6d7-142d-45b8-bc02-b34d1597480f
 
 
 # SUMMARY OF THIS CODE 
